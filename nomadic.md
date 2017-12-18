@@ -22,7 +22,7 @@ Food is not included in the list. I eat what i find in dumpsters, on the trees a
 - black electric tape
 - teaspoon (for eating, cleaning tongue, measuring bubble-making ingredients)
 - pencils
-- small ball of vax (make strings stronger by vaxing)
+- small ball of wax (make strings stronger by waxing)
 - pack thread - a strong string
 - earplugs with a box
 - black and white thread
@@ -38,12 +38,12 @@ Food is not included in the list. I eat what i find in dumpsters, on the trees a
 - plaster tape - Leukoplast - to fix small wounds
 - propolis
 - medical charcoal
-- desinfection
+- disinfectant
 - manicure scissors
 - white petroleum jelly (dry skin care)
 
 ## bags
-- backpack 75 litres (Gemma Expedition)
+- backpack 75 liters (Gemma Expedition)
 - fabric handbag
 - straps to attach violin case to backpack
 
