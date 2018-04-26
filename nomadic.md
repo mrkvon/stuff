@@ -41,6 +41,7 @@ Food is not included in the list. I eat what i find in dumpsters, on the trees a
 - disinfectant
 - manicure scissors
 - white petroleum jelly (dry skin care)
+- vitamin b12 (1 tablet weekly)
 
 ## bags
 - backpack 75 liters (Gemma Expedition)
@@ -58,7 +59,7 @@ Food is not included in the list. I eat what i find in dumpsters, on the trees a
 - usb-microusb cable
 
 ## camping
-- two 750ml plastic bottles for drinking water
+- various plastic bottles for drinking water (0.5 - 1 l) total volume of 1 - 2 l
 - hammock with mosquito net
 - sleeping mat
 - plastic sheet 2x3m worn out - to cover my backpack at night, to do yoga on, a floor for various activity, not usable as rain protection anymore
